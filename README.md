@@ -5,7 +5,7 @@
 - 本频道订阅器转换地址：https://sub.amclubss.com
 
 ### 👉 后期计划
-- 增加其它更多免费容器部署
+- 增加其它更多免费容器部署,OK
 
 <div align="center" markdown="1">
   <a href="https://doloffer.com/friend/xm5ydFi1">
